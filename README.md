@@ -54,7 +54,8 @@
 
 ## Output:
 ![Screenshot 2025-04-15 155153](https://github.com/user-attachments/assets/d121d754-29f3-40c8-808a-2c804afd313c)
-![Uploading Screenshot 2025-04-15 155203.png…]()
+![Screenshot 2025-04-15 155203](https://github.com/user-attachments/assets/d2505127-dde7-42d4-b6b5-72dd46b4c0d2)
+
 
 
 ### Name: Samakash R S
